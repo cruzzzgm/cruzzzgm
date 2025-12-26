@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Gabriel Medeiros 
+## Bem-vindo(a) ao perfil de Gabriel Medeiros 
 
  
 <div style="display: inline_block"><br>
